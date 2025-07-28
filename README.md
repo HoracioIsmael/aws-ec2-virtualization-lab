@@ -67,4 +67,4 @@ Este proyecto demuestra no solo habilidades técnicas, sino también creatividad
 
 **Horacio Ismael Correa**  
 Docente Técnico, UTN Argentina  
-Contacto: [LinkedIn](horacio-ismael-correa) | [Email](horacioismelcorrea@gmail.com)
+Contacto: [LinkedIn](www.linkedin/in/horacio-ismael-correa) | [Email](horacioismelcorrea@gmail.com)
